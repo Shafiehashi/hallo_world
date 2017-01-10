@@ -1,2 +1,2 @@
 # hallo_world
-Join  another repository
+Hi everyone my hobbies are rock climbing and swimming and racing 
